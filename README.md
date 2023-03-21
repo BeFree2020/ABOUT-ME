@@ -2,6 +2,6 @@
 
 Меня зовут Дмитрий
 
-![foto](https://f.otzyv.ru/f/kino/1998/3799/11041315431416.jpg)
+![foto](https://s5o.ru/storage/simple/by/ugc/44/0c/52/05/byu5a2ed5ce54.113.150x300.jpg)
 
 учусь в Нетологии
